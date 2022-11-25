@@ -1,0 +1,2 @@
+# MonkeyFUNKY
+privacy policy
